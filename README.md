@@ -1,1 +1,1 @@
-[![](https://blog-somefiles.oss-cn-chengdu.aliyuncs.com/github/images/5946DE589082ADDCC2AC2E12192017C1.png)](http://mashiro.online)
+[![](https://i.loli.net/2020/07/24/Y19pewIvSgjlxu7.png)](http://mashiro.online)
