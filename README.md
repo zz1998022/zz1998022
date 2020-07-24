@@ -1,1 +1,1 @@
-[![](https://tva1.sinaimg.cn/large/71785a53ly1fxylsf6ke7j216z0o6q8j.jpg)](https://lolicon.app)
+![5946DE589082ADDCC2AC2E12192017C1.png](https://i.loli.net/2020/05/20/F9j68Zzc5RxOtBi.jpg)
